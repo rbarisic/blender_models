@@ -9,3 +9,9 @@ All these models are free to use, but you **must** a) credit me, b) link back to
 
 ## Commercial Use
 These models are not free for commercial use, including passively benefitting from their use, e.g. via ad-sponsored apps, freemium games, and anything that is non-profit. If you still want to use them for your commercial projects, please contact me about licensing.
+
+
+
+## Further Ideas
+
+http://archive3d.net/?a=download&id=a7c7121a
